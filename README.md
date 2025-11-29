@@ -1,8 +1,11 @@
 ## ACHE
 ![nm](https://i.ibb.co/w6xG2n9/lv-0-20240829003308.gif)
 
-<video controls="" autoplay="" name="media">
-    <source src="https://www.youtube.com/watch?v=dW9Wg7eXRUg" type="audio/mp3">
-</video>
-
-[Succession (HBO Series) - Epic Piano Suite.mp3](https://github.com/user-attachments/files/23833322/Succession.HBO.Series.-.Epic.Piano.Suite.mp3)
+<div align="center">
+      <a href="https://www.youtube.com/watch?v=6N60EEi-gCY">
+     <img 
+      src="https://i.ibb.co/kVDhtzJ9/night019.png" 
+      alt="Everything Is AWESOME" 
+      style="width:50%;">
+      </a>
+    </div>
