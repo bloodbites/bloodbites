@@ -3,10 +3,11 @@
 
 <p align="center">Gender: fem. quoiromantic and pansexual (+ probably emotionally unavailable) psychosis
 </p> 
-Don't flirt if under 17, do not send me nsfw without asking.
+Don't flirt if under 17, do not send me nsfw without asking. if uncomf, will hide.
 i'm easily annoyed, 
 
 ![nm](https://i.ibb.co/w6xG2n9/lv-0-20240829003308.gif) 
+
 
 click apple for a surprise!
 <div align="right">
