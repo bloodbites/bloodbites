@@ -3,11 +3,12 @@
 
 <p align="center">Gender: fem. quoiromantic and pansexual (+ probably emotionally unavailable) psychosis
 </p> 
-**rules: Don't flirt if under 17**
+Don't flirt if under 17, do not send me nsfw without asking.
+i'm easily annoyed, 
 
 ![nm](https://i.ibb.co/w6xG2n9/lv-0-20240829003308.gif) 
 
-
+click apple for a surprise!
 <div align="right">
       <a href="https://www.youtube.com/watch?v=nodZA-ghy4E">
      <img 
